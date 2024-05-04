@@ -9,4 +9,4 @@
 
 📫 How to reach me: https://www.linkedin.com/in/danielkazakov/ or Dannizakov@gmail.com
 
-⚡ Fun facts: I'm a big One Piece nerd ⛵. (I read the manga and stay up to date with the publication) and Mixology 🍹 is a hobby of mine
+⚡ Fun facts: I'm a big One Piece nerd ⛵. (I read the manga) and Mixology 🍹 is a hobby of mine
